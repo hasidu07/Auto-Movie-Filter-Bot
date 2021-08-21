@@ -39,9 +39,9 @@
 
 
 ## Support ☎
-Contact Me On [Telegram](https://t.me/senuinfinity)
+Contact Me On [Telegram](https://t.me/HMOFFICIALFILMTVSERIESE)
 
-[Update Channel](https://t.me/senuinfinity)
+[Update Channel](https://t.me/HMOFFICIALFILMTVSERIESE)
 
 ## This Is Original Repo Link 💖
 
